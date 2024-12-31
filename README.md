@@ -1,0 +1,1 @@
+# osobysti-kordoni-paysuccess
